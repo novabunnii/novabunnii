@@ -40,7 +40,7 @@ sometimes i disappear for a bit but i always come back.
 
 proshippers/yumeshippers/radqueers. i don't have an issue with you guys personally but just don't int w me.
 
-if you're under 13, or above 18.
+if you're under 13, or above 19.
 
 zoophile, pedophile, racist, homophobic, trumpies.
 
