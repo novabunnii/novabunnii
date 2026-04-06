@@ -38,7 +38,8 @@ sometimes i disappear for a bit but i always come back.
 
 <p align="center"> 𝙳𝙽𝙸 .
 
-proshippers/yumeshippers/radqueers. i don't have an issue with you guys personally but just don't int w me.
+proshippers/radqueers. i don't have an issue with you guys personally but just don't int w me.
+yume's are on thin ice
 
 if you're under 13, or above 19.
 
