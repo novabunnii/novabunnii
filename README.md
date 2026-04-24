@@ -47,7 +47,7 @@ zoophile, pedophile, racist, homophobic, trumpies.
 
 if you're someone i used to know, theres a reason why i don't anymore.
 
-dandy's world fans,,, sorry.
+dandy's world fans,,, sorry. (unless you're chi.)
 
 if u romanticize mental health, gtfo. no explanation needed
 
