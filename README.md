@@ -2,7 +2,7 @@
 
 <p align="center">
 he/him/it/they/pup ✦ !!
-pots, autism, adhd, osdd. + more (yes, i am diagnosed.)
+pots, autism, epilepsy, osdd. + more (yes, i am diagnosed.)
 
 <p align="center"> negativity won't get you pretty far here
 <p align="center"> i am not entilted to be nice to you, nor be your friend. (esp if ur an asshole)
